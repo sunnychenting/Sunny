@@ -17,3 +17,10 @@ Pls contact me directly if you want to have a talk.
 Email: sunny.chenting@outlook.com
 
 TEL/Wechat:17621205617
+
+Interests：
+Love travel and photography
+Enjoy different life experiences
+work hard and play hard
+
+
